@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @emodastrevas
-- 👀 I’m interested in music and drawing
-- 🌱 I’m currently learning about song mixing
-- 💞️ I’m looking to collaborate on ...
-- 📫 Pronoumshe and/or she
+**HELLO** 😸
 
-<!---
-emodastrevas/emodastrevas is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+I'm Alix, a Brazilian 16 year old student and composer (I also sing hehe)
+
+  I like  🎲 RPG games, 🎧 listen to music, 🖌️ paint and 🌹 flowers.
+  
+  That's it 💙
+  
+stay safe and drink water!
+                                         **kisses 😽**
